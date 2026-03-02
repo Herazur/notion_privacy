@@ -75,4 +75,4 @@ We may update these Terms at any time. Continued use of the Service after update
 
 For any questions regarding these Terms, contact:
 
-Email: [your@email.com](mailto:furkangokaytolucc@gmail.com)
+Email: [furkangokaytolucc@gmail.com](mailto:furkangokaytolucc@gmail.com)
